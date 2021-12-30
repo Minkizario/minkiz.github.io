@@ -1,0 +1,2 @@
+# minkiz.github.io
+fffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
